@@ -1,5 +1,5 @@
 - 👋 Hi, I’m Rishi K. Bose
-- 👀 I’m interested in Mathematics, Biology, and Computer Science
+- 👀 I’m interested in Mathematics, Biology, Computer Science, Chemistry and Physics.
 - 🌱 I’m currently learning for my 9th standard.
 - 💞️ I’m looking to collaborate with myself.
 - 📫 How to reach me rishikbose25@outlook.com
